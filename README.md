@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ellyfe-Limited
+- 👀 we are a product based development company fully dedicated on ellyfe device 1.0 development.
+- 🌱 We are dedicated team focused mainly on product development and enhanced customer satisfaction.
+- 💞️ I’m looking to collaborate on enthusiatic web developers, market researchers, electronic and bio engineers , human resource managers
+- 📫 Our reach out method is as simple as quick
+- Mail ellyfelimited@gmail.com
+- Slack : ellyfe limited
