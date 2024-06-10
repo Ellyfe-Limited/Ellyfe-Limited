@@ -4,4 +4,5 @@
 - 💞️ I’m looking to collaborate on enthusiatic web developers, market researchers, electronic and bio engineers , human resource managers
 - 📫 Our reach out method is as simple as quick
 - Mail ellyfelimited@gmail.com
+- Careers: careers@ellyfe.co.uk
 - Slack : ellyfe limited
